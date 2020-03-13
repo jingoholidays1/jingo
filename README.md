@@ -1,0 +1,2 @@
+# jingo
+Jingo Holidays Private Limited is a top known Travel Agency in India. which was established in 2007. We have completed 11 years in the travel industry successfully. We are offering tour and travel services in India. We strongly believe that success is measured by the number of satisfied customers and it has always been our Endeavour. We offer the best price in all over the country with the best deal to ensure you enjoy your trip with loved ones.
